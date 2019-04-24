@@ -18,7 +18,9 @@
 
 ### PangBear.132 ：小胖子132
 
-### John.tw： 台湾健身裸屌
+### John.tw：台湾健身裸屌
+
+### Clauz_Bear.heng：卡比兽-阿恒
 
 ## Desktop.Background 桌面壁纸
 
